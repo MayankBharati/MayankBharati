@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **mayank.bharati000@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1J-vM4jRhwFwfur1HoOIAlKctnv7XFeR4/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1yyBFHGTKX9JcnvPmqZv4MLds5gmJlyuI/view?usp=drive_link)
 
 - ⚡ Fun fact **I build myself, when everyone is sleeping. Passionate about consulting also.**
 
